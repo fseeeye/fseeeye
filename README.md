@@ -1,2 +1,2 @@
 - A novice of Computer Graphic
-- Dream to work in @Game Science and I'm studying hard at it.
+- Dream to work at @Game Science and I'm studying hard.
